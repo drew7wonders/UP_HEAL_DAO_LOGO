@@ -1,5 +1,5 @@
 # UP_HEAL_DAO_LOGO
-hi, here's my submission. I have added bit of my creativity and modern DeFi touch to the logo. and with logo I have attached some posters with the logo so you can get a picture of how will it look on an ad or a website and I have tried my best to meet all requirements.
+hi, here's my submission. I have added bit of my creativity and modern DeFi touch to the logo. and with logo I have attached some posters with the logo so you can get a picture of how will it look on an ad or a website and I have tried my best to meet all requirements. for any kind of correction or suggestion mail me at kesharwansi084@gmail.com
 
 [LOGO]
 
