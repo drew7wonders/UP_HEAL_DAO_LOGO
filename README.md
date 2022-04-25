@@ -5,7 +5,8 @@ hi, here's my submission. I have added bit of my creativity and modern DeFi touc
 
 
 ![upheal LOGO DESIGN2](https://user-images.githubusercontent.com/95687419/165129331-8c4637ba-6be3-4027-adf6-df9c54c339a5.png)
-![upheal_LOGO_DESIGN-preview](https://user-images.githubusercontent.com/95687419/165129231-b0ac22ae-5357-48ab-a857-06fdd088ca70.png)
+![upheal_LOGO_DESIGN-nobg-preview](https://user-images.githubusercontent.com/95687419/165130116-9ba9501d-0f4b-4ce4-857f-ff556a55b740.png)
+
 
 [Posters]
 
